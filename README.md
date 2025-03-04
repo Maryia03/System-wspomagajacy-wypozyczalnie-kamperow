@@ -1,1 +1,1 @@
-# System-wspomagaj-cy-wypo-yczalni-kamper-w
+# System-wspomagajacy-wypozyczalnie-kamperow
